@@ -17,11 +17,11 @@
 
 📚 Senior in NTUEE [@ntu](https://www.ntu.edu.tw)
 
-📺 Music, novel, movie & corchet enthusiast [@B-side-of-me](https://www.instagram.com/chins0021?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
+👽 You can find me on [@xxc.71](https://www.instagram.com/xxc.71/?next=https%3A%2F%2Fwww.instagram.com%2Fstories%2Fxxc.71%2F)
+
+📺 Music, novel, movie & corcheting enthusiast [@B-side-of-me](https://www.instagram.com/chins0021?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 
 😺 Loving dogs and cats
-
-👽 You can find me on [@xxc.71](https://www.instagram.com/xxc.71/?next=https%3A%2F%2Fwww.instagram.com%2Fstories%2Fxxc.71%2F)
 
   </td>
 </tr>
