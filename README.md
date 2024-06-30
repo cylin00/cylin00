@@ -13,15 +13,15 @@
   </td>
   <td>
 
-
+zok
 
 📚 Senior in NTUEE [@ntu](https://www.ntu.edu.tw)
 
-👽 You can find me on [@xxc.71](https://www.instagram.com/xxc.71/?next=https%3A%2F%2Fwww.instagram.com%2Fstories%2Fxxc.71%2F)
+👽 You can find me on [@LinkedIn](https://www.linkedin.com/in/lin-chinying-0986122ba/)
 
 📺 Music, novel, movie & corcheting enthusiast [@B-side-of-me](https://www.instagram.com/chins0021?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 
-😺 Loving dogs and cats
+😺 Loving dogs and cats 🫧🤍🎀
 
   </td>
 </tr>
