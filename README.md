@@ -7,7 +7,7 @@
 <table style="border:none">
 <tr>
   <td style="vertical-align: top">
-    <img src="https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExdGUxdG10N2pmOGV0dDAwbHJqbWZtcDkwZzViaGxyZGRiOHZncDRwaCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tXL4FHPSnVJ0A/giphy.gif" width="250" />
+    <img src="https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExMTh2cmYxMzJwZjZudnkxOWpkcDhsNWFtMHRtcnIya2RudXR0bG91MiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/13Qumr2SLqrl5e/giphy.gif" width="300" />
   </td>
   <td>
   </td>
@@ -15,11 +15,11 @@
 
 
 
-📚 A senior in NTUEE
+📚 Senior in NTUEE [@ntu](https://www.ntu.edu.tw)
 
-🏠 Living in Taipei, Taiwan
+📺 Music, novel, movie & corchet enthusiast [@B-side-of-me](https://www.instagram.com/chins0021?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 
-👩‍⚖️  
+😺 Loving dogs and cats
 
 
   </td>
