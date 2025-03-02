@@ -13,7 +13,6 @@
   </td>
   <td>
 
-zok
 
 📚 Senior in NTUEE [@ntu](https://www.ntu.edu.tw)
 
