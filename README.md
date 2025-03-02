@@ -19,8 +19,6 @@ zok
 
 👽 You can find me on [@LinkedIn](https://www.linkedin.com/in/lin-chinying-0986122ba/)
 
-📺 Music, novel, movie & crocheting enthusiast [@B-side-of-me](https://www.instagram.com/chins0021?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
-
 😺 Loving dogs and cats 🫧🤍🎀
 
   </td>
