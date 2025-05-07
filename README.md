@@ -16,7 +16,7 @@
 
 📚 Senior in NTUEE [@ntu](https://www.ntu.edu.tw)
 
-👽 You can find me on [@LinkedIn](www.linkedin.com/in/chin-ying-lin)
+👽 You can find me on [@LinkedIn](https://www.linkedin.com/in/chin-ying-lin)
 
 😺 Loving dogs and cats 🫧🤍🎀
 
